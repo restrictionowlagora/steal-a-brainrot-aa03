@@ -1,4 +1,4 @@
-
+Get ahead in steal a brainrot with premium steal a brainrot Scripts, featuring custom skins and unlimited stamina. Download now to dominate every match with ease and confidence,
 
 
 
